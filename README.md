@@ -1,2 +1,3 @@
-# denny-ware.github.io
-Website
+MANGO EXPLOIT IS COMING SOON
+
+PLZ GIVE ME SOME TIME
